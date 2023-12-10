@@ -8,4 +8,5 @@ Question3 : ![Screenshot 2023-12-10 163210](https://github.com/ROHITH29122002/Se
 
 Part B :
 
-![Uploading Screenshot 2023-12-10 163317.png…]()
+![Screenshot 2023-12-10 163317](https://github.com/ROHITH29122002/Securin/assets/81609455/f3f9a29c-490a-4578-be9e-b76020c0dada)
+
